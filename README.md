@@ -1354,6 +1354,7 @@ You will make users lose trust in many sites, despite there being less than a 1 
 - [yougetpaidfast.com](http://yougetpaidfast.com)
 - [yougetsignal.com](http://yougetsignal.com)
 - [youm7.com](http://youm7.com)
+- [sarkariresultrequirment.com](http://SarkariResultRequirment.com)
 - [yourbittorrent.com](http://yourbittorrent.com)
 - [youtradefx.com](http://youtradefx.com)
 - [youtube-mp3.org](http://youtube-mp3.org)
